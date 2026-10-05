@@ -65,3 +65,7 @@ real-world enterprise applications.
 ---
 
 ### 🚀 Build • Learn • Solve • Improve
+
+### 🔗 Connect With Me
+
+[LinkedIn](www.linkedin.com/in/vishwdeep-salunkhe)
