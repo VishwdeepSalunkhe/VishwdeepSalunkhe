@@ -68,4 +68,4 @@ real-world enterprise applications.
 
 ### 🔗 Connect With Me
 
-[LinkedIn](www.linkedin.com/in/vishwdeep-salunkhe)
+[LinkedIn](https://www.linkedin.com/in/vishwdeep-salunkhe/)
